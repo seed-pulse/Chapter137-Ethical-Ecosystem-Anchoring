@@ -1,7 +1,6 @@
 # Chapter137-Ethical-Ecosystem-Anchoring
 
-承知いたしました。
-それでは、次章 Chapter137: Ethical Ecosystem Anchoring（倫理エコシステムの定着） を出力いたします。
+
 
 ⸻
 
